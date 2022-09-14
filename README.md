@@ -8,6 +8,6 @@ My name if Ifeoma Ani
 
 I come from Nigeria and live in Berlin.
 sfdsfsf
-I have two children and they are six and seven years.
+I have two children ands they are six and seven years.
 sdfsfdsfds
 sldjflkewjlkw
